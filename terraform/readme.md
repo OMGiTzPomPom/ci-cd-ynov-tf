@@ -1,0 +1,1 @@
+Nous avons eu du mal a comoprendre cette partie et nous avons demande de l'aide a notre cher ami chatgpt
